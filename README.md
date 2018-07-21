@@ -16,4 +16,4 @@ and your file start to download
 enjoy
 
 
-any qustion arshia.y@gmail.com
+any question arshia.y@gmail.com
